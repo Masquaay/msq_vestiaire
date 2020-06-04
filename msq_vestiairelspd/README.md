@@ -7,3 +7,5 @@ Merci de ne pas changer le nom du fichier ou d'essayer de vendre cette ressource
 
 Discord: Masquaay#0909
 Me trouver (Discord entraide fivem) : https://discord.gg/SmEwSee
+
+PREVIEW : https://www.youtube.com/watch?v=Auzq_qVMmkQ
